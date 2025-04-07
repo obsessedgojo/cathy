@@ -1,1 +1,1 @@
-gojo is my husband trust ᰔ
+gojo is my husband trust . . 
