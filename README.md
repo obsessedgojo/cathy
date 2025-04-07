@@ -1,4 +1,1 @@
-        𝐡𝐞𝐥𝐥𝐨𝐨 ( ? _ ^ ) 
-        Cathy... 
-
-        
+gojo is my husband trust ᰔ
