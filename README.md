@@ -7,3 +7,5 @@
               @2timeforsaken hiiiii ♡
 
        most annoying person to always c+h with anyone.
+
+     I like long cuddles and if u want to leave, free 2 leave me by my own self ( ? _ ^ ) 
