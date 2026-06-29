@@ -2,4 +2,4 @@
 ㅤㅤㅤ
 ㅤㅤㅤ
 ㅤㅤㅤ
-              me if there's shigadabi upstairs😂
+              i been run away
